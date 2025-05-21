@@ -1,0 +1,1 @@
+# 1_Modelo_Parcial_2025
